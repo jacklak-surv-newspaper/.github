@@ -1,1 +1,1 @@
-the newspaper for survival
+the newspaper for ORE survival
